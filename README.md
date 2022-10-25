@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LushiiWolfe
+- 👀 I’m interested in anything that can gape me
+- 🌱 I’m currently learning how to fit deeper insertions
+- 💞️ I’m looking for people to collaborate on my journey to be a size queen
